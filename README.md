@@ -12,6 +12,6 @@ dokumen dan tugas di PT GAGACLOW SEMARANG
 
 HASIL KINERJA HARI INI PADA TANGGAL 3 MARET 2025 
 1. Buyer sudah datang dan lihat untuk jalannya mesin filling dan mesin template GC-90
-2. untuk mesin template GC-90 Ms. Anita bilang jika ada salah satu buyer yang menanyakan status mesin(bilang jika mesin sudah lama pakai) seolah sudah banyak pengalaman untuk proses template
-3. job selanjutnya Ms.Anita bilang jika tanggal 12-18 Maret 2025 nanti akan ada buyer datang lagi untuk pengecekan Quality mesin template
+2. untuk mesin template GC-90 Mrs. Anita bilang jika ada salah satu buyer yang menanyakan status mesin(bilang jika mesin sudah lama pakai) seolah sudah banyak pengalaman untuk proses template
+3. job selanjutnya Mrs.Anita bilang jika tanggal 12-18 Maret 2025 nanti akan ada buyer datang lagi untuk pengecekan Quality mesin template
 4. stitching yang di  minta adalah 8 stitch per 1 inchi = 3,1mm per stitch
