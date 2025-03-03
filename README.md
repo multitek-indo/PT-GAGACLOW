@@ -9,3 +9,4 @@ dokumen dan tugas di PT GAGACLOW SEMARANG
 7. info ke mbak Nunik untuk holder frame PT-3525 agar bisa portable
 8. cek pressure foot untuk mesin PT-3525 agar tidak menabrak needle bar(menggunakan jarum type DPX5)
 9. buat ulang pola mika dengan file plt yang terakhir dikirim di group GAGACLOW dengan format template dari mr.Wen
+10. untuk SPI adalah 8 stitching per satu inchi
