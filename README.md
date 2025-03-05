@@ -18,3 +18,10 @@ HASIL KINERJA HARI INI PADA TANGGAL 3 MARET 2025
 
 PROSES PEMBUATAN POLA MIKA 362725 :
 1. untuk yang big size ternyata setelah di kroscek ukurannya sama dengan yang di buat oleh mr.Wen
+
+4 MARET 2025 
+
+1. pembuatan pola mika GC-90 untuk style sombrero 03011(style yang ada mika hitamnya) sudah di buatkan di corel draw tetapi belum di laserkan
+2. untuk design style sombrero 03011 jumlahnya ada 24pcs dengan design untuk mesin GC90
+3. untuk style ERGODYNE sudah yang jahit logo sudah di buatkan design 2 pcs di GC90(belum di laser) karena bahan yang akan di jahit besar
+4. untuk style 362725 SMALL SIZE belum selesai pembuatan design nya
